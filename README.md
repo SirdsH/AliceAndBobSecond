@@ -1,2 +1,3 @@
 # AliceAndBobSecond
-Tonda Vondrovic is gay
+Tonda Vondrovic is nigger
+
